@@ -1,4 +1,4 @@
-Go Read https://github.com/Zombsloid/Zombs-PG3D-SERVICES/blob/main/ZombPG3D.txt For prices and whatnot
+Go Read https://github.com/Zombsloid/Zombs-PG3D-SERVICES/blob/main/ZombPG3D.txt for prices of bundles
 
 Join the discord: https://discord.gg/ZXPSWtrYpj
 
